@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on hunger, my project for the globe
 - 📫 How to reach me paolajurgelewicz@gmail.com
 - 😄 Pronouns: She, her
-- ⚡ Fun fact: I love eating chocolate pizza
+- ⚡ Fun fact: I love eating chocolate pizza and fries with ice cream
 
 <!---
 paolarj/paolarj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
