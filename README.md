@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @paolarj, P.
 - 👀 I’m interested in the Worlds Issues
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on hunger, my project for the globe
+- 💞️ I’m looking to collaborate on ending with hunger, my project for the globe
 - 📫 How to reach me paolajurgelewicz@gmail.com
 - 😄 Pronouns: She, her
 - ⚡ Fun fact: I love eating chocolate pizza and fries with ice cream
